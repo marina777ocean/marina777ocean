@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @marina777ocean
 - 👀 I’m interested in meeting good positive people
-- 🌱 I’m currently learning 1C programmer
-- 💞️ I’m looking to collaborate on 1C study, getting experience and support with 1C, freelancing and jobs in the same
+- 🌱 I’m currently learning IT DEVELOPER, study in Beekbrains on IT Products Manager
+- 💞️ I’m looking to collaborate with IT professionals and develop IT business in Dubai , UAE. I have IT company and wouldlike to start offering IT development services in  Dubai.
 - 📫 You can reach me by whatsapp: +79313825515 english/russian
 
 <!---
