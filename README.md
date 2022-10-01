@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning IT DEVELOPER, study in Geekbrains on IT Products Manager.
 - 💞️ I’m looking to collaborate with IT professionals and develop IT business in Dubai , UAE. 
      I have IT company in Dubai and would like to start offering IT development services in  Dubai. Anyone can join me.
-- 📫 You can reach me by whatsapp: +79313825515 english/russian
+- 📫 You can reach me by whatsapp: +971505444526 english/russian
 
 <!---
 marina777ocean/marina777ocean is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
